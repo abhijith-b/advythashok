@@ -1,1 +1,3 @@
 # advythashok
+
+human or cyborg?
